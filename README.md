@@ -2,7 +2,7 @@
 
 ### Hi there, I'm Mounir 👋
 - Security researcher
-- i'm just Script Kiddie guy  
+- I'm just a script kiddie  
 
 
 
