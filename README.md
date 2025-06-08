@@ -1,7 +1,7 @@
 
 
 ### Hi there, I'm Mounir 👋
-- Security researcher
+
 - I'm just a script kiddie  
 
 
