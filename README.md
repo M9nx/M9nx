@@ -1,6 +1,6 @@
 
 
-### Hi there, I'm Mounir 👋
+### Hi there, I'm Mounir 
 
 ###  &nbsp;Connect with Me
 
